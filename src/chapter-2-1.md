@@ -18,4 +18,4 @@ In addition to regulating our sleep-wake cycle, our circadian rhythm also influe
 Conclusion
 ----------
 
-Our circadian rhythm is an internal biological process that regulates many different processes in our body, including our sleep-wake cycle, hormone production, and metabolism. By understanding our circadian rhythm and aligning our daily routines with our natural energy patterns, we can optimize our productivity, energy levels, and overall well-being. In the next chapter, we will explore how we can use this knowledge to optimize our morning routine.
+Our circadian rhythm is an internal biological process that regulates many different processes in our body, including our sleep-wake cycle, hormone production, and metabolism. By understanding our circadian rhythm and aligning our daily routines with our natural energy patterns, we can optimize our productivity, energy levels, and overall well-being.

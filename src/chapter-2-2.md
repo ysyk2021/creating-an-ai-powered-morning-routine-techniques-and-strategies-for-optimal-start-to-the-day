@@ -25,4 +25,4 @@ Our circadian rhythm also plays a role in regulating metabolism. Certain hormone
 Conclusion
 ----------
 
-Our circadian rhythm plays a crucial role in regulating our sleep-wake cycle, hormone production, and metabolism. Disruptions to our circadian rhythm can lead to sleep disturbances, fatigue, and metabolic disturbances. By understanding the importance of our circadian rhythm, we can optimize our daily routines to support our natural energy patterns and promote overall well-being. In the next chapter, we will explore how we can optimize our morning routine by understanding our circadian rhythm.
+Our circadian rhythm plays a crucial role in regulating our sleep-wake cycle, hormone production, and metabolism. Disruptions to our circadian rhythm can lead to sleep disturbances, fatigue, and metabolic disturbances. By understanding the importance of our circadian rhythm, we can optimize our daily routines to support our natural energy patterns and promote overall well-being.

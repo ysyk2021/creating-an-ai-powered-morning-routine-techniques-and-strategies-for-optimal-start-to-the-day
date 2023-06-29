@@ -33,4 +33,4 @@ Conclusion
 
 Incorporating exercise and movement into your morning routine can have numerous benefits for your physical and mental health. By starting your day with a workout or stretch session, you can increase energy levels, improve mood, and promote better sleep quality.
 
-When choosing a type of exercise or movement to incorporate into your morning routine, choose something that fits your personal preferences and fitness level. With consistency and dedication, you can create a morning routine that supports your overall health and well-being. In the next chapter, we will explore how AI-powered fitness apps can help support your morning exercise routine and enhance your overall wellness.
+When choosing a type of exercise or movement to incorporate into your morning routine, choose something that fits your personal preferences and fitness level. With consistency and dedication, you can create a morning routine that supports your overall health and well-being.

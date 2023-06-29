@@ -24,4 +24,4 @@ Breathing exercises are another effective way to start your day with mindfulness
 Conclusion
 ----------
 
-Incorporating mindfulness practices into your morning routine, such as meditation and breathing exercises, can help reduce stress, improve focus and concentration, and promote a sense of calm and well-being. By starting your day with mindfulness, you can set a positive tone for the rest of your day. In the next chapter, we will explore how AI-powered wellness apps can help support your mindfulness practice and enhance your morning routine.
+Incorporating mindfulness practices into your morning routine, such as meditation and breathing exercises, can help reduce stress, improve focus and concentration, and promote a sense of calm and well-being. By starting your day with mindfulness, you can set a positive tone for the rest of your day.
