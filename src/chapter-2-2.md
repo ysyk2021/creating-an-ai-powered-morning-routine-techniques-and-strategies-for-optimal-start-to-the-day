@@ -1,5 +1,4 @@
-How Does It Affect Our Sleep and Waking Patterns?
-=================================================================================================
+
 
 Our circadian rhythm plays a crucial role in regulating our sleep and waking patterns. When our circadian rhythm is aligned with our sleep schedule, we experience regular periods of restful sleep at night and wakefulness during the day. In this chapter, we will explore how our circadian rhythm affects our sleep and waking patterns.
 

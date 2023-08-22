@@ -1,5 +1,4 @@
-Recap of the Benefits of an AI-Powered Morning Routine
-==================================================================
+
 
 In this book, we explored the benefits of creating an AI-powered morning routine and provided techniques and strategies for optimizing your routine. Here's a recap of the benefits of an AI-powered morning routine:
 

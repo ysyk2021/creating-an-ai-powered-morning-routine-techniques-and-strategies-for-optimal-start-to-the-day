@@ -1,5 +1,4 @@
-What is a Circadian Rhythm?
-===========================================================================
+
 
 Our circadian rhythm is an internal biological clock that regulates many different processes in our body, including our sleep-wake cycle, hormone production, and metabolism. In this chapter, we will explore what a circadian rhythm is and how it affects our daily lives.
 

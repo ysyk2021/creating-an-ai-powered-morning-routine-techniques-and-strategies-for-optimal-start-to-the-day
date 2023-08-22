@@ -1,5 +1,4 @@
-Tips for Establishing and Maintaining a Consistent Routine
-==============================================================================================================
+
 
 Establishing a consistent morning routine is essential for starting your day off on the right foot. In this chapter, we will explore tips for establishing and maintaining a consistent morning routine.
 

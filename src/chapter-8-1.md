@@ -1,5 +1,4 @@
-The Importance of Reflection and Planning for a Successful Day Ahead
-=================================================================================================================================================
+
 
 In this chapter, we will discuss the importance of reflection and planning in setting yourself up for a successful day ahead.
 

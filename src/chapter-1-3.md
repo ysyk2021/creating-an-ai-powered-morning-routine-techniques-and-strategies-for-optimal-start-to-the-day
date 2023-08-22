@@ -1,5 +1,4 @@
-What You Can Expect from This Book
-================================================
+
 
 A successful day starts with a productive morning routine. However, finding the right routine that works for you can be challenging. That's where this book comes in.
 

@@ -1,4 +1,4 @@
-# Introduction
+
 
 Welcome to "Creating an AI-Powered Morning Routine: Techniques and Strategies for Optimal Start to the Day". Whether you are a student, a professional, or just someone looking to improve your daily routine, this book will provide you with practical tips and strategies to create a morning routine that will set you up for success.
 

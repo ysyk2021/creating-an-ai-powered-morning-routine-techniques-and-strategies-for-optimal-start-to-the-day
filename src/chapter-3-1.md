@@ -1,5 +1,4 @@
-What is AI and How Can it be Used to Improve Our Morning Routine?
-==========================================================================================================================
+
 
 Artificial intelligence (AI) is a branch of computer science that focuses on creating machines that can perform tasks that typically require human intelligence, such as learning, problem-solving, and decision-making. In recent years, AI has become increasingly prevalent in our daily lives, including in our morning routines. In this chapter, we will explore what AI is and how it can be used to improve our morning routine.
 

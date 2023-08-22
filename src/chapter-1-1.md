@@ -1,5 +1,4 @@
-The Importance of a Morning Routine
-=================================================
+
 
 Starting your day off on the right foot is crucial for productivity, focus, and overall well-being. A morning routine can help set the tone for the rest of your day by providing structure, reducing stress, and promoting healthy habits.
 
