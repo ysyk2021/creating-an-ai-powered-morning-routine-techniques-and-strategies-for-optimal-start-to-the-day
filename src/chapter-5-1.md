@@ -1,5 +1,4 @@
 
-
 Starting your day with mindfulness can help set a positive tone for the rest of the day. In this chapter, we will explore the benefits of mindfulness in the morning.
 
 What is Mindfulness?

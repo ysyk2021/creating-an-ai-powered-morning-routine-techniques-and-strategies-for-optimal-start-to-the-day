@@ -1,5 +1,4 @@
 
-
 Establishing a consistent morning routine can have significant benefits for our physical and mental well-being. In this chapter, we will explore the benefits of a consistent morning routine, as well as tips for establishing and maintaining one. Additionally, we will discuss how AI can help with developing and sticking to a consistent routine.
 
 The Benefits of a Consistent Morning Routine

@@ -1,5 +1,4 @@
 
-
 In this chapter, we will explore techniques for reflection and planning that can help set you up for a successful day ahead. Specifically, we will discuss journaling and goal-setting as powerful tools for self-reflection and establishing clear objectives.
 
 Journaling

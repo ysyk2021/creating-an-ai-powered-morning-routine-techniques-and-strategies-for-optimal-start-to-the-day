@@ -1,5 +1,4 @@
 
-
 Proper nutrition plays a critical role in starting your day off on the right foot. In this chapter, we will explore the importance of breakfast and proper nutrition in the morning.
 
 Benefits of Eating Breakfast

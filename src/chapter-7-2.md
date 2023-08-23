@@ -1,5 +1,4 @@
 
-
 Eating a healthy, balanced breakfast is an important part of any morning routine. By fueling our bodies with the right nutrients, we can improve our energy levels, mental performance, and overall health. In this chapter, we will explore which foods to eat and avoid for optimal health and energy.
 
 Foods to Eat

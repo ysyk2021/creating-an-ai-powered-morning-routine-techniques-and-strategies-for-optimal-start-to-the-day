@@ -1,5 +1,4 @@
 
-
 Establishing a consistent morning routine is essential for starting your day off on the right foot. In this chapter, we will explore tips for establishing and maintaining a consistent morning routine.
 
 Set Specific Goals
@@ -31,5 +30,4 @@ Conclusion
 ----------
 
 Developing a consistent morning routine can have significant benefits for our physical and mental well-being. By setting specific goals, starting small, being consistent, remaining flexible, and using AI-powered tools, individuals can establish a routine that works for them and optimize their mornings for success and productivity.
-
 

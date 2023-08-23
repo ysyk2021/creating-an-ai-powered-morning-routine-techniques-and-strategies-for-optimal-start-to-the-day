@@ -1,5 +1,4 @@
 
-
 Incorporating exercise and movement into your morning routine can help set you up for a productive and energized day. Here are some types of exercises and movements to consider:
 
 Cardiovascular Exercises

@@ -1,5 +1,4 @@
 
-
 Incorporating exercise and movement into your morning routine can have numerous benefits for your physical and mental health. From increased energy levels to improved mood, adding a workout or stretch session to your morning routine can set you up for success throughout the day.
 
 Increased Energy Levels

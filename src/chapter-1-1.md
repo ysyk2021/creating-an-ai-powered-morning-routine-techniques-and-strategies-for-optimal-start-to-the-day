@@ -1,5 +1,4 @@
 
-
 Starting your day off on the right foot is crucial for productivity, focus, and overall well-being. A morning routine can help set the tone for the rest of your day by providing structure, reducing stress, and promoting healthy habits.
 
 Research has shown that having a consistent morning routine can lead to better sleep quality, improved mood, and increased productivity throughout the day. By incorporating activities such as exercise, meditation, and goal-setting into your morning routine, you can boost your energy levels and mental clarity, setting yourself up for success.

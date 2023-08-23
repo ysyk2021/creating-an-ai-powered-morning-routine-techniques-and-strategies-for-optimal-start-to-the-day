@@ -1,5 +1,4 @@
 
-
 Developing a consistent morning routine is one of the most important steps you can take towards optimizing your day. A consistent morning routine can help you start your day off on the right foot, reduce stress and anxiety, and improve your overall productivity and well-being.
 
 The Benefits of a Consistent Morning Routine

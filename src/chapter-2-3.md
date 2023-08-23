@@ -1,5 +1,4 @@
 
-
 Our circadian rhythm is a natural biological process that regulates our sleep-wake cycle and influences our energy levels throughout the day. By understanding our circadian rhythm, we can optimize our morning routine to ensure that we are starting our day off on the right foot. In this chapter, we will explore what our circadian rhythm is and how we can use this knowledge to improve our morning routine.
 
 What is Our Circadian Rhythm?

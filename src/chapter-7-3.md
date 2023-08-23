@@ -1,5 +1,4 @@
 
-
 A healthy morning routine should include more than just exercise and meditation. Proper nutrition is also critical for starting the day off on the right foot. Fortunately, there are now many AI-powered nutrition apps available that can help you plan and track your meals to ensure that you are fueling your body with the nutrients it needs.
 
 Understanding AI-Powered Nutrition Apps
