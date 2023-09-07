@@ -6,3 +6,7 @@ In today's fast-paced world, it can be difficult to find time for self-care and 
 This book will explore the benefits of creating an AI-powered morning routine and provide techniques and strategies for incorporating mindfulness, exercise, proper nutrition, and reflection into your routine. We will also discuss how AI-powered technology can assist with task management, goal-setting, and productivity tracking to help you achieve optimal results.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
