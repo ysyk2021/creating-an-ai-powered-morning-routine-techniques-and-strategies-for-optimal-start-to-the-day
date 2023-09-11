@@ -1,5 +1,4 @@
-Chapter 5: How AI-Powered Fitness Apps Can Help You Stay Motivated and Track Progress
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the exciting realm of AI-powered fitness apps and how they can revolutionize your morning routine, making it easier to stay motivated and track your progress on your journey to a healthier lifestyle.
 

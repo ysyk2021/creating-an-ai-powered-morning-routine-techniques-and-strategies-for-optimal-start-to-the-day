@@ -1,5 +1,4 @@
-Chapter 13: AI-Powered Alarm Clocks and Wake-Up Lights
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll delve into the world of AI-powered alarm clocks and wake-up lights, exploring how these innovative devices can revolutionize your morning routine. With their smart features and advanced technologies, they can help you wake up more gently, feel more refreshed, and start your day on the right foot.
 

@@ -1,5 +1,4 @@
-Chapter 4: How Can We Optimize Our Morning Routine by Understanding Our Circadian Rhythm?
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the practical strategies and techniques for optimizing your morning routine by aligning it with your circadian rhythm. Understanding your body's natural clock is key to creating an AI-powered morning routine that maximizes your productivity and well-being.
 

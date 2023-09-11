@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Reflection and Planning, Including Journaling and Goal-Setting
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential techniques of reflection and planning that can be integrated into your AI-powered morning routine. These practices, including journaling and goal-setting, provide a solid foundation for a purposeful and productive day ahead.
 

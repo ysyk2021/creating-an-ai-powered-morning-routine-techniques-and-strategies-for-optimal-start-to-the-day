@@ -1,5 +1,4 @@
-Chapter 5: How Does It Affect Our Sleep and Waking Patterns?
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the intricate relationship between your AI-powered morning routine and its effects on your sleep and waking patterns. Understanding this connection is vital for crafting a routine that not only optimizes your mornings but also promotes restorative sleep.
 

@@ -1,5 +1,4 @@
-Chapter 2: The Benefits of Morning Exercise and Movement
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits of incorporating exercise and movement into your morning routine. You'll discover how these activities can set a positive tone for the rest of your day and contribute to your overall well-being.
 

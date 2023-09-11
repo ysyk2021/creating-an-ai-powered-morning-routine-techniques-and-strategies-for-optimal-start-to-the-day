@@ -1,5 +1,4 @@
-Chapter 1: What is AI, and How Can it Be Used to Improve Our Morning Routine?
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this opening chapter, we will embark on a journey to understand what Artificial Intelligence (AI) is and how it can be harnessed to enhance our morning routines. AI is a transformative technology that has the potential to revolutionize the way we start our day, making it more efficient, personalized, and productive.
 

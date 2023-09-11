@@ -1,5 +1,4 @@
-Chapter 8: AI-Powered Fitness and Wellness Apps for Morning Exercise and Meditation
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the world of AI-powered fitness and wellness apps, highlighting their role in optimizing your morning routine by seamlessly integrating exercise and meditation. These apps can help you achieve your health and wellness goals while ensuring a productive and balanced start to your day.
 

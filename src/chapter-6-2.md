@@ -1,5 +1,4 @@
-Chapter 6: Types of Exercises and Movements to Consider
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various types of exercises and movements that you can incorporate into your AI-powered morning routine to kickstart your day with energy and vitality. These activities are designed to promote physical and mental well-being, setting a positive tone for the day ahead.
 

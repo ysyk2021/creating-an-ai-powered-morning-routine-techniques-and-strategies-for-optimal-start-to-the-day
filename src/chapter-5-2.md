@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Practicing Mindfulness, Including Meditation and Breathing Exercises
-==============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful techniques of mindfulness, including meditation and breathing exercises, as integral components of your AI-powered morning routine. These practices can enhance your mental clarity, reduce stress, and set a calm and focused tone for the day ahead.
 

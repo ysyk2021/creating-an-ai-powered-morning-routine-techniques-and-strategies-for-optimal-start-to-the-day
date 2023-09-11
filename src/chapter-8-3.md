@@ -1,5 +1,4 @@
-Chapter 8: How AI Can Assist with Planning and Task Management to Set You Up for a Productive Day
-=================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the ways in which Artificial Intelligence (AI) can play a pivotal role in planning and task management, ultimately setting the stage for a highly productive day. AI has the potential to streamline your morning routine, prioritize tasks, and ensure that you make the most of your valuable time.
 

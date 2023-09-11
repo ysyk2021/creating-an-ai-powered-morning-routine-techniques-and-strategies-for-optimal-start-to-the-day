@@ -1,5 +1,4 @@
-Chapter 9: Foods to Eat and Avoid for Optimal Health and Energy
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will focus on the importance of dietary choices within your AI-powered morning routine. By selecting the right foods to eat and avoiding those that hinder your well-being, you can boost your energy levels and support your overall health for a productive and vibrant start to the day.
 

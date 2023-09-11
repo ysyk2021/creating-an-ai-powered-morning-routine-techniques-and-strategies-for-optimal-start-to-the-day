@@ -1,5 +1,4 @@
-Chapter 6: The Importance of Breakfast and Proper Nutrition in the Morning
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the significance of breakfast and proper nutrition as essential components of your AI-powered morning routine. Understanding the role of breakfast and making informed nutritional choices can greatly impact your day's start.
 

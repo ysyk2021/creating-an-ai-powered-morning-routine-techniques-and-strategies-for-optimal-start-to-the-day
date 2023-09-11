@@ -1,5 +1,4 @@
-Chapter 3: How AI Can Help with Developing and Sticking to a Consistent Routine
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the transformative role of artificial intelligence (AI) in the development and maintenance of a consistent morning routine. Discover how AI-powered tools and strategies can optimize your daily habits, making them more effective and sustainable.
 

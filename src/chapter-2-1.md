@@ -1,5 +1,4 @@
-Chapter 1: What is a Circadian Rhythm?
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the fascinating world of circadian rhythms, exploring what they are, why they matter, and how understanding them is crucial for creating an AI-powered morning routine that optimizes your day.
 
